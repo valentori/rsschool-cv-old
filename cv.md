@@ -12,3 +12,9 @@
 **Education:**
 * September 1992 — June 1996, Altai State University, Bachelor of Economics;
 * September 2017 — January 2021, Altai State University, Master in Design Pedagogy.
+
+**Language proficiencies:**
+* Russian - Native;
+* English - B1.
+
+**Hobbies:** handcrafts: knitting, crochet, embroidery, reading.
